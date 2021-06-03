@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bakedta
+- 👀 I’m interested in Machine Learnig
+- 🌱 I’m currently learning How to programm :)
+- 💞️ I’m looking to collaborate on Proyects
+- 📫 How to reach me @Bakedta
